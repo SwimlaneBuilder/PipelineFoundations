@@ -1,0 +1,2 @@
+# PipelineFoundations
+From physical, emotional, mental, aspirational wants to fulfillment needs, industry pipelines need good engineering and resiliency to protect and grow the innocent among us. Pipeline foundations is an A-Z solution for off the grid living, and collections of a vision of the past present and future.  A peaceful safe society, with passion mystery and adventure. This might turn into a short story. OR many stories.
